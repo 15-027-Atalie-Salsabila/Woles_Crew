@@ -1,7 +1,7 @@
 # Woles_Crew
 
 📄 **Dokumen Proposal (Google Docs)**  
-[Lihat Proposal Lengkap di Google Docs](https://docs.google.com/document/d/1AbCdEfGhIjKlMnOpQrStUvWxYz/view)
+[Lihat Proposal Lengkap di Google Docs](https://docs.google.com/document/d/1s0WetvLABlpyBimFZOF_zAgsdjslN-ElBPuCcNl1r30/edit?usp=sharing)
 
 ---
 
